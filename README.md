@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AgravatJay89
 - 👀 I’m interested in all programming language.
-- 🌱 I’m currently learning in collage.
+- 🌱 I’m currently in collage.
 -🪄(-‿-)
 
 <!---
